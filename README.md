@@ -1,3 +1,1 @@
-Hola!
-Me llamo mizakko
-Me gusta pasarla chill b
+i love floppa and initial d lmao
